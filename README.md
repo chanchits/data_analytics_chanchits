@@ -4,4 +4,4 @@
 In case you want to reach me, this is my email: sewalee.chanchit@gmail.com
 <br>
 <br>
-<center>Thanks a bunch!</center>
+Thanks a bunch!
